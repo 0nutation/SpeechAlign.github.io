@@ -1,0 +1,1 @@
+everything he has done has been aimed at the conservation of energy the contraction of space the intensification of culture

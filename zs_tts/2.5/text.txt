@@ -1,0 +1,1 @@
+he summoned half a dozen citizens to join his posse who followed obeyed and assisted him

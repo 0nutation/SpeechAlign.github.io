@@ -1,0 +1,1 @@
+marie's face fell under his brooding gaze

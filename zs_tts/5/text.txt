@@ -1,0 +1,1 @@
+distrusting his own judgment his appeals to the opinion of chingachgook were frequent and earnest

@@ -1,0 +1,1 @@
+forthwith all ran to the opening of the tent to see what might be amiss but master will who peeped out first needed no more than one glance
